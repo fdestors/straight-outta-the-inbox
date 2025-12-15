@@ -10,7 +10,7 @@ It's da Al-Gore-Rhythm... And it's basically just me name!
 Check it!
 
 ### Verse 1 
-You got your SPF, your D-KIM...  
+You got your SPF, your DKIM...  
 (Confused) whatever dat is You's writin' "subject lines" but it's all a miss  
 Your email goes to "Promotions" Or even worse, da bin!  
 But when Ali sends an email It always gets in! (shouted)  
