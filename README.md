@@ -3,8 +3,6 @@
 
 ---
 
-## 🎤 Straight Outta the Inbox
-
 Booyakasha!
 
 **Straight Outta the Inbox** is (as far as me lawyers can tell) the world’s first full-length rap concept album about email deliverability. Respect.
