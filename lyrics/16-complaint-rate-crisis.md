@@ -13,7 +13,7 @@ BRUV—SOMEBODY COMPLAININ’ ON ME?!
 ### Verse 1
 Yo, me open me metrics — nearly faint, swear down  
 Complaint rate risin’ like it tryna take da crown  
-O dot 1… O dot 3… O dot 5…  
+O.10… O.30… O.50…  
 Bruv me heartbeat bouncin’ at a dangerous rate  
 “DID DEY HATE ME CONTENT?!” — me yell at da screen  
 “Was it da subject line? Was me CTA mean?”  
